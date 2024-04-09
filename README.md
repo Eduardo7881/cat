@@ -9,3 +9,6 @@ Yeah, you can say just say that you forked a catnap... xD
 
 # Seriously, did you just fork a CatNap photo repository?
 U can say: Totally yes
+
+<a href="https://www.youtube.com/watch?v=1urOMNyJOSE">Banned Emoji</a>
+<a href="https://www.youtube.com/watch?v=vvjYdBNCyzM">Emoji</a>
